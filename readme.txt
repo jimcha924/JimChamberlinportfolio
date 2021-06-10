@@ -1,3 +1,10 @@
+
+
+
+Welcome to my portfolio! Look around, poke around and feel free to ask me any questions you might have.
+
+
+
 Thank you for using our template!
 
 For more awesome templates please visit https://colorlib.com/wp/templates/
